@@ -1,0 +1,1 @@
+The photos used in this webiste were collected from lookbook.nu for community research and the copyright belongs to the original owners.
